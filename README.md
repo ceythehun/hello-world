@@ -1,2 +1,3 @@
 # hello-world
 iNitiaTioN
+There are many things i'd still like to do in my lifetime.  Other than being a race car driver/pilot/sound designer/producer, i'd very much like to design and build a hardware sound generating/mashing device, ideally - sooner rather than later, as I just turned 34 and am still broke haha.  Broke being relevant because man's got to work 5/7 to stay afloat, and is apparently lacking the required energy levels to pump dreams on the side.  Motivation is hard to find when everything seems so far away and already occupied, but i guess it's what you make of it right.  Would be cool to learn how to code anyway.  party on.
